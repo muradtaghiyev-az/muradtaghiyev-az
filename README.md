@@ -6,4 +6,3 @@
 - 🤔 I’m looking for help with improving my projects
 - 💬 Ask me anything about my repositories
 - 📫 How to reach me: Gmail: muradtagiyev573@gmail.com
-- 😄 Pronouns: He/His
